@@ -1,2 +1,0 @@
-# PORTFOLIO
-Video Editor Ads
